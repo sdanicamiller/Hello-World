@@ -1,4 +1,9 @@
 # Hello-World
-for an assignment to learn git
-lalalalalala
-la
+lalala
+
+
+
+hi
+my name is danica
+this is for an assignment for class
+i have no idea what to write
